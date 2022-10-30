@@ -1,14 +1,14 @@
  
  👋  Hi! I’m Overgreen.
  
-- I'm 16 years old and have a YouTube channel with over 2K subscribers.
-- I'm currently in 10th grade, but hope to drop out of school if possible.
+- I'm 17 years old and had a YouTube channel with over 2K subscribers.
+- I'm currently in 11th grade... Gosh, I hate school so much.
 - If you'd like, talk to me on the platforms below.
  
  📫 Reach me on...
 - 🐦 Twitter | @RealOvergreen
 - 🤳🏻 Instagram | @realovergreen
-- ♪ TikTok | @realovergreen1 (main account) and @oncearoundthesequel (until November 2022)
+- ♪ TikTok | @real.overgreen
 - 📞 Discord | Overgreen#9487
 
 <!---
