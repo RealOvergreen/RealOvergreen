@@ -1,8 +1,8 @@
  
  👋  Hi! I’m Overgreen.
  
-- I'm 18 years old and have a YouTube channel with over 3K subscribers.
-- I'm currently in 12th grade.
+- I'm 19 years old and have a YouTube channel with over 3K subscribers.
+- I'm currently in college.
 - If you'd like, talk to me on the platforms below.
  
  📫 Reach me on...
