@@ -10,7 +10,7 @@
 - 🤳🏻 Instagram | @realovergreen
 - ♪ TikTok | @real.overgreen
 - 📞 Discord | @overgreen
-- ☁️ Bluesky | @overgreen.bsky.social
+- ☁️ Bluesky | @overgreen.neocities.org
 
 <!---
 RealOvergreen/RealOvergreen is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
