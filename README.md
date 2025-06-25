@@ -1,8 +1,7 @@
  
  👋  Hi! I’m Overgreen.
  
-- I'm 19 years old and have a YouTube channel with over 3K subscribers.
-- I'm currently in college.
+- I'm 19 years old and have a TikTok account with nearly 500 followers.
 - If you'd like, talk to me on the platforms below.
  
  📫 Reach me on...
