@@ -1,13 +1,12 @@
  
  👋  Hi! I’m Overgreen.
  
-- I'm 20 years old and have a TikTok account with over 500 followers.
+- I'm a 20-year-old gay furry that enjoys technology.
 - If you'd like, talk to me on the platforms below.
  
  📫 Reach me on...
 - 🐦 Twitter | @RealOvergreen
 - 🤳🏻 Instagram | @realovergreen
-- ♪ TikTok | @real.overgreen
 - 📞 Discord | @overgreen
 - ☁️ Bluesky | @overgreen.neocities.org
 
