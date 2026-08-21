@@ -5,7 +5,6 @@
 - If you'd like, talk to me on the platforms below.
  
  📫 Reach me on...
-- 🐦 Twitter | @RealOvergreen
 - 🤳🏻 Instagram | @realovergreen
 - 📞 Discord | @overgreen
 - ☁️ Bluesky | @overgreen.neocities.org
